@@ -1,0 +1,2 @@
+﻿
+Southern Hemisphere is more hot, Humid, Cloudy and Windy than Northern Hemisphere.  Equator is most pleasant. For vacation plant on can choose the places which is most pleasant, not cloudy and less windy. 
